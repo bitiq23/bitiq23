@@ -1,4 +1,4 @@
-# Hi, I'm 03llawy 👋
+# Hi, I'm Ali Haimat 👋
 
 **Business Information Technology student** at the University of Information Technology and Communications (UoITC), College of Business Informatics.
 
